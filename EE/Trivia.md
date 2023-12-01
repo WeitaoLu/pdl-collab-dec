@@ -1,0 +1,1 @@
+The brain doesn't have any kind of clock to coordinate it's activity, which is part of the reason it's much more energy-efficient compared to computers. 
